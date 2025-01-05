@@ -68,7 +68,7 @@ If I faced or witnessed any incident or repeated incidents of sexual behaviour, 
 ### Scenario 10: Testing the water
   In this scenario, a male superior and his female subordinate had a good work relationship, but he tried to test the water with her by indirectly conveying her desire, which offsets the subordinate resulting in the loss of a perfectly good work relationship between them.
 
-### How to handle cases of harassment?
+## How to handle cases of harassment?
 There are many ways of handling cases of harassment I will discuss them:
 * the first thing to think about doing when you feel you're being harassed is to tell the person to stop.
 * Next if that doesn't work tell your supervisor
@@ -76,7 +76,7 @@ There are many ways of handling cases of harassment I will discuss them:
 * If a client harrases you or the contracts depended on the sexual favours then you should document what happened and what was said, so if things escalate you should talk to a supervisor.
 
 
-### How to behave appropriately?
+## How to behave appropriately?
 The guidelines to consider here are to ask yourself:
   * Would you do or say the same thing in the same way if your wife, husband, son, daughter or other loved one was standing right next to you? if not don't do it at work.
   * Is what you're doing potentially crossing a personal or physical boundary of another person? like touching, unless you know a person well and have certainty that any kind of touching besides a handshake is welcome don't do it at work.
