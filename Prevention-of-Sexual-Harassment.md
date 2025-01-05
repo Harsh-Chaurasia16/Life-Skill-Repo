@@ -48,41 +48,41 @@ In this scenario, the woman repeatedly asked her male colleague for a date, even
 In this scenario, a woman in the office sends a joke to everyone to lighten things up in the office, others may have found it funny too but someone in particular finds it inappropriate, which makes this harassment towards the one who didn't find this funny, in this case, a female colleague.
 
 ### Scenario 4: The Legend
-In this scenario, It was fairly clear that the woman found the hug unwelcome, she staged her preference by extending her hand and then she says, hug going to make my day any better Ron, though the man continued which constitute hostile work environment Sexual Harassment.
+In this scenario, it was fairly clear that the woman found the hug unwelcome, she staged her preference by extending her hand and then she said, hug going to make my day any better Ron, though the man continued which constituted a hostile work environment sexual harassment.
 
 ### Scenario 5: Odd man out
-In this scenario, the male suppervisior in this scene was giving special attention to particular female subordinate in work place which gives a sense of special treatment to others, in this case another female subordinate, hence rising a sense of unfairness which is a Quid Pro Quo Sexual Harassment against the disadvantage employee.
+In this scenario, the male supervisor was giving special attention to a particular female subordinate in the workplace which is perceived as a sense of special treatment to another subordinate. This gives rise to a sense of unfairness which is a Quid Pro Quo sexual harassment against the disadvantaged employee.
 
 ### Scenario 6: The contract
-In this scenario, a male team lead and a female client were on meeting about a contract inside a restaurant, while the man was focussed on the contract and hinted towards the same to the other but the she was more focused on gaining advantage over the contract through sexually inticing the man, which constitute sexual harassment against the man.
+In this scenario, a male team lead and a female client were in a contract discussion inside a restaurant, though the man was focused on the contract and hinted towards the same she was more focused on gaining the advantage over the contract through sexually enticing the man, which constitutes sexual harassment against the man.
 
-### Scenerio 7: Twisted words
-In this scenario, a man made a suggestive coment towards a female collegue of using sexual appeal to cracking a deal with the client which constitute a hostile work environment for the female.
+### Scenario 7: Twisted words
+In this scenario, a man made a suggestive comment towards a female colleague using sexual appeal to crack a deal with the client which constitutes a hostile work environment for the female.
 
-### Scenerio 8: Equal appreciation
-In this scenario, a female emplloyee was commented equally inappropriate comment by both a male and a female colleague, but she was offended by the women and not with a man. This scenario depicts that though a person can not be an equal recipiant of the other but others should be equally reespectfull to each other.
+### Scenario 8: Equal appreciation
+In this scenario, a female employee made an equally inappropriate comment by both a male and a female colleague, but she was offended by the woman and not by a man. This scenario depicts that though a person can not be an equal recipient of the other others should be equally respectful to each other.
 
 ### Scenario 9: Everyone loves a compliment
-In this scenario, A male collegue was repeatedly giving compliments over her looks, at first we could see that she was happy but after a while could see her unease on her face as she felt weird after those repeated complementsgiven to her by her colleague.
+In this scenario, a male colleague was repeatedly giving compliments over her looks, at first we could see that she was happy but after a while could see the unease on her face as she felt weird after those repeated compliments given to her by her colleague.
 
 ### Scenario 10: Testing the water
-In this scenario, a male superior and his female subordinate had a good work relation, but he tried to test the water with her by indirectly conveing to her about her desire, which offsets the subordinate resulting in lost of perfectly good work relation between them.
+In this scenario, a male superior and his female subordinate had a good work relationship, but he tried to test the water with her by indirectly conveying her desire, which offsets the subordinate resulting in the loss of a perfectly good work relationship between them.
 
 ### How to handle cases of harassment?
-There are many ways of handling the cases of harassments I will discuss them:
+There are many ways of handling cases of harassment I will discuss them:
 * the first thing to think about doing when you feel you're being harassed is to tell the person to stop.
 * Next if that doesn't work tell your supervisor
-* If the supervisor is the harasser then tell to hes supervisor, or someone like HR.
+* If the supervisor is the harasser then tell his supervisor or someone like HR.
 * If a client harrases you or the contracts depended on the sexual favours then you should document what happened and what was said, so if things escalate you should talk to a supervisor.
 
 
 ### How to behave appropriately?
-* The guidlenes to consider in here is to ask yourself
-  * would you do or say the same thing in the exact same way if your wife, husband, son, daughter or other loved one was standing right next to you?, if not don't do it at work.
-  * Is what you're doing potentially crossing a personal or physical boundary of another person? like touching, unless you really know a person well and have certainty that any kind of touching besides handshake is welcome don't do it at work.
+* The guidelines to consider here are to ask yourself:
+  * Would you do or say the same thing in the same way if your wife, husband, son, daughter or other loved one was standing right next to you? if not don't do it at work.
+  * Is what you're doing potentially crossing a personal or physical boundary of another person? like touching, unless you know a person well and have certainty that any kind of touching besides a handshake is welcome don't do it at work.
   * Has the person given you notice in any way? If they show any discomfort stop immediately.
-* Other than these you should be mindfull of: 
-  * whenever you manage people it's important to treat them equally, performance should be the only thing that's rewarded.
-  * Professionalism by everyone in dressing and behaviour is neccesary.
+* Other than these you should be mindful: 
+  * Whenever you manage people it's important to treat them equally, performance should be the only thing that's rewarded.
+  * Professionalism by everyone in dressing and behaviour is necessary.
   * Testing of personal interaction can potentially destroy an otherwise excellent working relationship.
   
