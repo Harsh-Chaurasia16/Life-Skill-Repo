@@ -1,12 +1,10 @@
 # Grit and Growth Mindset
 
 ## Grit
-
-Grit is passion and perseverance for very long-term goals. Grit is sticking with your future, day in, and day out, for years, and working really hard to make that future a reality. Grit is living life like it's a marathon, not a sprint. The best idea about building grit in kids is something called a "growth mindset". This is an idea developed at Stanford University by Carol Dweck, and it is the belief that the ability to learn is not fixed and that it can change with effort. With a growth mindset, a person is much more likely to persevere when they fail, because they don't believe that failure is a permanent condition. So growth mindset is a great idea for building grit.
+Grit is passion and perseverance for very long-term goals. Grit is sticking with your future, day in, and day out, for years, and working hard to make that future a reality. Grit is living life like it's a marathon, not a sprint. The best idea about building grit in kids is something called a "growth mindset". This is an idea developed at Stanford University by Carol Dweck, and it is the belief that the ability to learn is not fixed and that it can change with effort. With a growth mindset, a person is much more likely to persevere when they fail, because they don't believe that failure is a permanent condition. So growth mindset is a great idea for building grit.
 
 ## Introduction to Growth Mindset
-
-According to Carol Dweck, there are two ways of thinking about skill development, fixed mindset i.e. your skills and abilities are what you are born with and Growth mindset i.e. skills and abilities are acquired and can be enhanced. This is a spectrum where sometimes you might be fixed or sometimes in growth. since this works on mindset, we need to zoom in on the belief and focus and create a real growth mindset.
+According to Carol Dweck, there are two ways of thinking about skill development, fixed mindset i.e. your skills and abilities are what you are born with and Growth mindset i.e. skills and abilities are acquired and can be enhanced. This is a spectrum where sometimes you might be fixed or sometimes in growth. Since this works on mindset, we need to zoom in on the belief and focus and create a real growth mindset.
 
 ## What is the Internal Locus of Control? What is the key point in the video?
 Internal Locus of control means the belief that it was factors they controlled that led to their outcomes, it was their hard work and their extra effort that allowed them to do well on the puzzles right because how much work you put into something is something that you have complete control over.
@@ -18,3 +16,16 @@ Key points from the video are as follows:
 * To adopt an Internal Locus of Control, you should take time to appreciate your hard work, believing the efforts you made resulted in success making you motivated to work harder.
 
 ## What are the key points mentioned by the speaker to build a growth mindset
+The key points mentioned by the speaker to build a growth mindset are as follows:
+*  Believe in your ability to figure things out.
+*  Question your assumptions.
+*  To develop your life curriculum.
+*  Honour the struggle.
+
+## What are your ideas to take action and build Growth Mindset?
+My ideas to take action and build a growth mindset are:
+* To enjoy each day with a challenge, anything such as coding, playing chess or even learning new library or technology.
+* To have a positive look at the work you are doing, have a sense of pride that you are learning something new or you are enhancing your skills.
+* At the time of failure don't get disappointed and sit idle, take a new challenge and pave a new path.
+* Take responsibility for your success and failure equally.
+* Lastly, never step back from hard work. 
