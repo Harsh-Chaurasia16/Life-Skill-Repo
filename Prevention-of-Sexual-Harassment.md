@@ -32,8 +32,8 @@ In either type of harassment, employees only have to prove that the behavior was
 ## What would you do if you faced or witnessed any incident or repeated incidents of such behaviour?
 
 If I faced or witnessed any incident or repeated incidents of sexual behaviour, I'd take the following steps in order: 
-* First I'd tell that person to stop if I don't feel comfortable telling the person to stop
-* If I do tell them and they don't stop, I'd follow my organization's grievance procedure, if I don't know what those procedures are I'll talk to my supervisor
+* First I'd tell that person to stop if I don't feel comfortable telling the person to stop.
+* If I do tell them and they don't stop, I'd follow my organization's grievance procedure, if I don't know what those procedures are I'll talk to my supervisor.
 * If my supervisor harasses me, I'll report it to his or her supervisor, someone in HR or another person I feel comfortable with up the chain of command.
 
 ## Explains different scenarios enacted by actors.
@@ -48,7 +48,7 @@ If I faced or witnessed any incident or repeated incidents of sexual behaviour, 
   In this scenario, a woman in the office sends a joke to everyone to lighten things up in the office, others may have found it funny too but someone in particular finds it inappropriate, which makes this harassment towards the one who didn't find this funny, in this case, a female colleague.
 
 ### Scenario 4: The Legend
-  In this scenario, it was fairly clear that the woman found the hug unwelcome, she staged her preference by extending her hand and then she said, hug going to make my day any better Ron, though the man continued which constituted a hostile work environment sexual harassment.
+  In this scenario, it was fairly clear that the woman found the hug unwelcome, she staged her preference by extending her hand and then she said, hug going to make my day any better Ron, though the man continued which constituted a hostile work environment and sexual harassment.
 
 ### Scenario 5: Odd man out
   In this scenario, the male supervisor was giving special attention to a particular female subordinate in the workplace which is perceived as a sense of special treatment to another subordinate. This gives rise to a sense of unfairness which is a Quid Pro Quo sexual harassment against the disadvantaged employee.
@@ -71,15 +71,15 @@ If I faced or witnessed any incident or repeated incidents of sexual behaviour, 
 ## How to handle cases of harassment?
 There are many ways of handling cases of harassment I will discuss them:
 * the first thing to think about doing when you feel you're being harassed is to tell the person to stop.
-* Next if that doesn't work tell your supervisor
+* Next if that doesn't work tell your supervisor.
 * If the supervisor is the harasser then tell his supervisor or someone like HR.
 * If a client harrases you or the contracts depended on the sexual favours then you should document what happened and what was said, so if things escalate you should talk to a supervisor.
 
 
 ## How to behave appropriately?
 The guidelines to consider here are to ask yourself:
-  * Would you do or say the same thing in the same way if your wife, husband, son, daughter or other loved one was standing right next to you? if not don't do it at work.
-  * Is what you're doing potentially crossing a personal or physical boundary of another person? like touching, unless you know a person well and have certainty that any kind of touching besides a handshake is welcome don't do it at work.
+  * Would you do or say the same thing in the same way if your wife, husband, son, daughter or other loved one was standing right next to you? If not don't do it at work.
+  * Is what you're doing potentially crossing a personal or physical boundary of another person? Like touching, unless you know a person well and have certainty that any kind of touching besides a handshake is welcome don't do it at work.
   * Has the person given you notice in any way? If they show any discomfort stop immediately.
 * Other than these you should be mindful: 
   * Whenever you manage people it's important to treat them equally, performance should be the only thing that's rewarded.
