@@ -7,9 +7,9 @@ Steps/Strategies to do Active Listening are as follows
 1. Avoid getting distracted by your thoughts, focus on the speaker and topic instead.
 2. Try not to interrupt the other person.
 3. Let the speaker finish and then respond.
-4. Use door openers these are phrases that show you're interested and keep the other person talking
-5. Show that you're listening with body language
-6. If appropriate take notes during important conversations, and paraphrase what others have said to make sure you're both on the same page
+4. Use door openers these are phrases that show you're interested and keep the other person talking.
+5. Show that you're listening with body language.
+6. If appropriate take notes during important conversations, and paraphrase what others have said to make sure you're both on the same page.
 
 ## Reflective Listening
 
