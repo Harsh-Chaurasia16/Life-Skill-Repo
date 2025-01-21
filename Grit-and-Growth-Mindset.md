@@ -22,7 +22,7 @@ The key points mentioned by the speaker to build a growth mindset are as follows
 *  To develop your life curriculum.
 *  Honour the struggle.
 
-## What are your ideas to take action and build Growth Mindset?
+## What are your ideas for taking action and building a growth mindset?
 My ideas to take action and build a growth mindset are:
 * To enjoy each day with a challenge, anything such as coding, playing chess or even learning new library or technology.
 * To have a positive look at the work you are doing, have a sense of pride that you are learning something new or you are enhancing your skills.
