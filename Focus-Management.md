@@ -7,7 +7,7 @@ Deep work can be understood by the following points:
 * Deep work requires a high level of focus and immersion in the task at hand.
 * It involves tasks that require deep concentration, such as problem-solving, writing, coding, or other intellectually challenging work.
 * Deep work takes place in environments free of distractions, like social media, phone calls, and other interruptions.
-* It is often associated with tasks that have high value or that result in substantial personal or professional growth.
+* It is often associated with high-value tasks that result in substantial personal or professional growth.
 
 ## Summary of Deep Work Book
 
@@ -25,7 +25,7 @@ According to the author to do deep work properly we need to take the following s
 I can implement the principles in my day-to-day life by doing the following things:
 * Block specific times in my calendar for focused, uninterrupted work.
 * Create a quiet, distraction-free environment for my deep work sessions.
-* Limit distractions by silencing notifications, closing unnecessary tabs, and avoiding social media during work periods.
+* Limit distractions by silencing notifications, closing unnecessary tabs, and avoiding social media during work.
 * Gradually increase the length and intensity of my deep work sessions to build focus.
 * Identify high-value, cognitively demanding tasks to focus on during my deep work time.
 * Create a routine such as a specific time of day or a cup of coffee to signal the start of deep work.
