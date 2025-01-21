@@ -3,7 +3,7 @@
 ## Manage Energy not Time
 
 ### What activities do you do that make you relax - Calm quadrant?
-Activities I do make myself relax are as follows:
+Activities I do to make myself relax are as follows:
 * Reading books or Web-Novels.
 * Walking in the park or terrace has a calming effect on my mind.
 
